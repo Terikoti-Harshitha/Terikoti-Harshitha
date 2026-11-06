@@ -69,7 +69,6 @@ Score: **99.5%**
 ## Contact
 
 - **Location:** Vizianagaram, Andhra Pradesh, India
-- **Phone:** +91 7382979635
 - **Email:** [harshitha091206@gmail.com](mailto:harshitha091206@gmail.com)
 
 ---
